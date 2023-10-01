@@ -1,7 +1,4 @@
-
-
-#### B站频道（联系请用: B站私信 或Discord：becomequantum）：
-### [B站-无限次元](https://space.bilibili.com/2139404925)
+Discord：becomequantum
 
 ### AI会倒逼人类进化 
 
