@@ -23,7 +23,10 @@ Discord：becomequantum
 
 [关于二氧化氯的更多视频](https://rumble.com/c/c-604817) 这个小众视频网站可以看到这些内容,油管谷歌信息审查都很严重,看不到也难搜到这些. 
 
-[Vaccine Injuries From Around The World](https://rumble.com/v1en7lk-covid-19-vaccine-injuries-from-around-the-world-graphic-content.html)
+[Vaccine Injuries From Around The World](https://rumble.com/v1en7lk-covid-19-vaccine-injuries-from-around-the-world-graphic-content.html) 
+
+[首位世界领导人因疫苗死亡面临谋杀指控](https://thepeoplesvoice.tv/first-world-leader-faces-murder-charges-over-vaccine-deaths/)
+
 
 ### 不要"滥生无辜"! 人口过剩是万恶之源！ 物以稀为贵，人多人就贱！
 ### 没认识到自己是奴隶人活该被剥削！
