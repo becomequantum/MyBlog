@@ -119,8 +119,10 @@
 
 [川普总统宣布将从疫苗中去除铝佐剂](https://gettr.com/streaming/p3svajb037b)
 
-[新冠疫苗导致免疫缺陷疾病与癌症暴增](https://gettr.com/streaming/p2hk95573be)
+[新冠疫苗导致免疫缺陷疾病与癌症暴增](https://gettr.com/streaming/p2hk95573be) 
 
-[川普总统的疫苗声明震惊世界](https://gettr.com/streaming/p3sosz5fa1d)
+[川普总统的疫苗声明震惊世界](https://gettr.com/streaming/p3sosz5fa1d) 
 
-[HPV疫苗不但不能预防宫颈癌，还会造成子宫早衰和多囊病症](https://gettr.com/post/p31gy6759c8)
+[HPV疫苗不但不能预防宫颈癌，还会造成子宫早衰和多囊病症](https://gettr.com/post/p31gy6759c8) 
+
+[排毒重金属治好小孩自闭症-MMS可排重金属](https://gettr.com/post/p33cpv827fd) 
