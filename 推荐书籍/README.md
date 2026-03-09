@@ -44,13 +44,13 @@
 
 [MMS淘宝购买链接](https://shop162291631.taobao.com/)
 
-### [MMS（二氧化氯），毒药？医药奇迹？ 第一部分](https://www.bilibili.com/video/BV14a411R7Xi)
+### [MMS（二氧化氯），毒药？医药奇迹？ 第一部分](https://www.bilibili.com/video/BV14a411R7Xi) 
+
+[MMS疗效证词网站](https://mmstestimonials.co/) 
 
 [【纪录片】癌症真相](https://www.bilibili.com/video/BV1Br4y1s772)
 
-[【纪录片】食出新生](https://www.bilibili.com/video/BV1vg411A7kg) 这个视频后面讲了二型糖尿病的真正病因
-
-["猝死":国外讲mRNA后遗症的纪录片, 有字幕](https://mp.weixin.qq.com/s/R7dGbj8Mc7xkBAOc80SiwQ)
+[【纪录片】食出新生](https://www.bilibili.com/video/BV1vg411A7kg) 这个视频后面讲了二型糖尿病的真正病因 
 
 [毒苗导致“涡轮癌”（turbo cancer）](https://www.zhihu.com/zvideo/1595407478983688192)！！！
 
@@ -126,3 +126,4 @@
 [HPV疫苗不但不能预防宫颈癌，还会造成子宫早衰和多囊病症](https://gettr.com/post/p31gy6759c8) 
 
 [排毒重金属治好小孩自闭症-MMS可排重金属](https://gettr.com/post/p33cpv827fd) 
+
