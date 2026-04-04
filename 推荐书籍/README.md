@@ -123,7 +123,11 @@
 
 [川普总统的疫苗声明震惊世界](https://gettr.com/streaming/p3sosz5fa1d) 
 
-[HPV疫苗不但不能预防宫颈癌，还会造成子宫早衰和多囊病症](https://gettr.com/post/p31gy6759c8) 
+[HPV疫苗不但不能预防宫颈癌，还会造成子宫早衰和多囊病症](https://gettr.com/post/p31gy6759c8)  
 
-[排毒重金属治好小孩自闭症-MMS可排重金属](https://gettr.com/post/p33cpv827fd) 
+[关于HPV疫苗(的副作用-新浪微博)](https://weibo.com/ttarticle/p/show?id=2309404508216775016571)
+
+[排毒重金属治好小孩自闭症-MMS可排重金属](https://gettr.com/post/p33cpv827fd)  
+
+[2026-4-2 澳洲新冠疫苗高接种区，98%超额死亡不是病毒感染造成](https://www.youtube.com/watch?v=-3qUjdrozgQ)
 
