@@ -129,5 +129,5 @@
 
 [排毒重金属治好小孩自闭症-MMS可排重金属](https://gettr.com/post/p33cpv827fd)  
 
-[2026-4-2 澳洲新冠疫苗高接种区，98%超额死亡不是病毒感染造成](https://www.youtube.com/watch?v=-3qUjdrozgQ)
+[疫苗表达的刺突蛋白可破坏卵巢功能，扰乱内分泌系统，诱导血管发炎, 导致血栓形成](https://gettr.com/post/p304vw86a79) 
 
