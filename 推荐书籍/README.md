@@ -29,18 +29,20 @@
 
 [Kryon:未来500年的物理](https:////mp.weixin.qq.com/s/LLwLO-EctM1cTufqRtpSLg)
 
-上面这两篇是另外一位译者翻译的克里昂信息，克里昂信息算是比较高阶一点的，刚入门的人一般看不明白信息里的干货在哪。我翻译的克里昂信息现在网上没有了，暂时也懒得发出来。通灵信息中唯一会讲物理的就是克里昂。
+上面这两篇是另外一位译者翻译的克里昂信息，克里昂信息算是比较高阶一点的，刚入门的人一般看不明白信息里的干货在哪。
+
+### 我也翻译了很多克里昂信息，已经放到这个目录里了
 
 关于灵性资料需要说明一下的是，如果你会被上面这些内容吸引，那还请自行判断这些信息的真假好坏。独处是个人最好的修行方式，切莫拜上师，加入任何修行或宗教组织。因为很容易被带歪。我是连个修行的群聊都不加的。不要想着出家，没有意义的，现在庙里早已不是清净之地了。
 
 最后推荐一些和健康相关的书和视频，书推荐《医疗灵媒》下面这个链接是一个主要转发和这本书相关内容的公号。我这里推荐的都是一些小众的信息，在这个领域，能经得起大家实践考验的小众的信息一般比大众的更靠谱。
 
 
-[【纪录片】兴盛2\[Thrive II This Is What It Takes\]前半部分](https://www.bilibili.com/video/BV1fZ4y1Q7Ar) 介绍了真正能逆转癌症和老年痴呆症的疗法\!
+[【纪录片】兴盛2\[Thrive II This Is What It Takes\]前半部分-B站](https://www.bilibili.com/video/BV1fZ4y1Q7Ar) 介绍了真正能逆转癌症和老年痴呆症的疗法\!
 
-[为何不让人们知道mms是如何治疗癌症的](https://mp.weixin.qq.com/s/D1gLAh5X4RpJ09Ek7eRrkg)
+[为何不让人们知道mms是如何治疗癌症的-公众号](https://mp.weixin.qq.com/s/D1gLAh5X4RpJ09Ek7eRrkg)
 
-[国内mms使用者的治愈案例](https://mp.weixin.qq.com/s/979WLjmxF13PVPApSEnLnA)
+[国内mms使用者的治愈案例-公众号](https://mp.weixin.qq.com/s/979WLjmxF13PVPApSEnLnA)
 
 [MMS淘宝购买链接](https://shop162291631.taobao.com/)
 
@@ -48,15 +50,12 @@
 
 [MMS疗效证词网站](https://mmstestimonials.co/) 
 
-[【纪录片】癌症真相](https://www.bilibili.com/video/BV1Br4y1s772)
+[【纪录片】癌症真相-B站](https://www.bilibili.com/video/BV1Br4y1s772)
 
-[【纪录片】食出新生](https://www.bilibili.com/video/BV1vg411A7kg) 这个视频后面讲了二型糖尿病的真正病因 
+[【纪录片】食出新生-B站](https://www.bilibili.com/video/BV1vg411A7kg) 这个视频后面讲了二型糖尿病的真正病因 
 
-[毒苗导致“涡轮癌”（turbo cancer）](https://www.zhihu.com/zvideo/1595407478983688192)！！！
+[毒苗导致“涡轮癌”（turbo cancer）-知乎](https://www.zhihu.com/zvideo/1595407478983688192)！！！
 
-[这 5 件事会缩小你的大脑](https://www.bilibili.com/video/BV1Lx4y1j7b4/)
-
-这个视频后面讲了喝酒会严重伤害大脑。现在的医学研究已经证明了喝酒，哪怕只喝一点点都是对身体有害的。所以建议有点脑子的人都彻底戒酒。喝葡萄酒对身体有好处主要原因是葡萄汁里含的抗氧化物等有益物质，不是因为酒精。所以想要这个好处喝葡萄汁就行了。酒文化就是人类的糟粕文化。
 
 [速溶咖啡或会导致端粒缩短，每天多喝一杯约等于减寿0.38岁](https://mp.weixin.qq.com/s/vzJO5YLmaLthNBG7J710vw)
 
@@ -113,21 +112,21 @@
 [【纪录片】失落世纪如何找回](https://www.bilibili.com/video/BV1PX4y1t7cA/) UFO和自由能源真相已被隐瞒一个世纪了，53分钟处讲了热核聚变不靠谱
 
 
-## 更多关于疫苗：
+## 喵喵：
 
 [证实新冠疫苗可导致多发性硬化症](https://gettr.com/streaming/p2jwwcf47d7) 
 
-[川普总统宣布将从疫苗中去除铝佐剂](https://gettr.com/streaming/p3svajb037b)
+[川普总统宣布将从疫苗中去除铝佐剂](https://gettr.com/streaming/p3svajb037b) 
 
 [新冠疫苗导致免疫缺陷疾病与癌症暴增](https://gettr.com/streaming/p2hk95573be) 
 
-[川普总统的疫苗声明震惊世界](https://gettr.com/streaming/p3sosz5fa1d) 
-
 [HPV疫苗不但不能预防宫颈癌，还会造成子宫早衰和多囊病症](https://gettr.com/post/p31gy6759c8)  
 
-[关于HPV疫苗(的副作用-新浪微博)](https://weibo.com/ttarticle/p/show?id=2309404508216775016571)
+[关于HPV疫苗(的副作用-新浪微博)](https://weibo.com/ttarticle/p/show?id=2309404508216775016571) 
 
 [排毒重金属治好小孩自闭症-MMS可排重金属](https://gettr.com/post/p33cpv827fd)  
 
 [疫苗表达的刺突蛋白可破坏卵巢功能，扰乱内分泌系统，诱导血管发炎, 导致血栓形成](https://gettr.com/post/p304vw86a79) 
+
+[Dr. Ryan Cole: Covid Vaccine Side Effects Are Like A Nuclear Bomb 苗副如核弹](https://rumble.com/v18byhs-dr.-ryan-cole-covid-vaccine-side-effects-are-like-a-nuclear-bomb.html)
 
