@@ -17,13 +17,8 @@
 
 《与神对话》系列是最经典的。这本书里神说：这其实是你和你自己的对话。的确是这样的，我是看完南师的书，好像看开悟了后不久再看到“与神对话”的，就觉得书里的部分内容我已经悟到了。《赛斯》系列信息也是值得推荐的，但赛斯的书有点晦涩难懂。《[《灵魂永生》极简讲述 第一章 我不具形体，但我却在写书](https://www.bilibili.com/video/BV1md4y1c7dg)》这个UP主在做视频解读赛斯的书，讲的还不错。《[秘密之书 赫尔墨斯智慧秘典](https://item.jd.com/11943472.html)》这本书是讲宇宙法则的，非常推荐，译者也翻译过其它一些灵性书籍，感兴趣的可以去搜一下。《[扬升书](https://www.zhihu.com/people/lu-zi-piao-miao)》也值得推荐，里面作者挂过一次又回来的故事很有趣，这个情节和“与神对话”里讲的，我们在挂的时候是可以选择再回来是一致的，所以并没有任何离世是没有遵循灵魂的意愿的。
 
-《入门》《与神对话》《星星的孩子》《扬升书》的电子版可以在下面这个网站下载到（需要楼梯）：
+《入门》《与神对话》《星星的孩子》《扬升书》的电子版可以在“Anna’s Archive”上下到，用谷歌搜。
 
-[Anna’s Archive](https://annas-archive.org/)
-
-[Library Genesis](https://libgen.rs/) 这个网站可以下到文献，科学书籍
-
-  
 
 [Kryon：觉醒与觉察——第二部分](https://mp.weixin.qq.com/s/YK54JXElEPMqmwnPN_FpjQ) 睡眠的重要性,做梦是大脑在整理和释放记忆.
 
@@ -53,8 +48,6 @@
 [【纪录片】癌症真相-B站](https://www.bilibili.com/video/BV1Br4y1s772)
 
 [【纪录片】食出新生-B站](https://www.bilibili.com/video/BV1vg411A7kg) 这个视频后面讲了二型糖尿病的真正病因 
-
-[毒苗导致“涡轮癌”（turbo cancer）-知乎](https://www.zhihu.com/zvideo/1595407478983688192)！！！
 
 
 [速溶咖啡或会导致端粒缩短，每天多喝一杯约等于减寿0.38岁](https://mp.weixin.qq.com/s/vzJO5YLmaLthNBG7J710vw)
@@ -103,7 +96,6 @@
 [筋膜的秘密：皮肤下的神秘世界（上）](https://www.bilibili.com/video/BV1NJ41157gc)
 
 [我们的命运被基因诅咒了？改变思维，即可逆天改命！](https://www.bilibili.com/video/BV1uq4y1Y7hK)了解下表观遗传学
-
   
 
 [认知的限制Ⅰ是真实还是谎言](https://www.bilibili.com/video/BV1gP411m7uN) 人类的认知是如何被操纵的
@@ -127,6 +119,8 @@
 [排毒重金属治好小孩自闭症-MMS可排重金属](https://gettr.com/post/p33cpv827fd)  
 
 [疫苗表达的刺突蛋白可破坏卵巢功能，扰乱内分泌系统，诱导血管发炎, 导致血栓形成](https://gettr.com/post/p304vw86a79) 
+
+[毒苗导致“涡轮癌”（turbo cancer）-知乎](https://www.zhihu.com/zvideo/1595407478983688192)！！！ 
 
 [Dr. Ryan Cole: Covid Vaccine Side Effects Are Like A Nuclear Bomb 苗副如核弹](https://rumble.com/v18byhs-dr.-ryan-cole-covid-vaccine-side-effects-are-like-a-nuclear-bomb.html)
 
