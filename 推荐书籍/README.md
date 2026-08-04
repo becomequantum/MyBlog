@@ -101,7 +101,9 @@
 [认知的限制Ⅰ是真实还是谎言](https://www.bilibili.com/video/BV1gP411m7uN) 人类的认知是如何被操纵的
 
 
-[【纪录片】失落世纪如何找回](https://www.bilibili.com/video/BV1PX4y1t7cA/) UFO和自由能源真相已被隐瞒一个世纪了，53分钟处讲了热核聚变不靠谱
+[【纪录片】失落世纪如何找回](https://www.bilibili.com/video/BV1PX4y1t7cA/) UFO和自由能源真相已被隐瞒一个世纪了，53分钟处讲了热核聚变不靠谱 
+
+[耶稣灵魂曾经历五世？《圣经》真的隐藏了轮回？埃德加·凯西与阿卡西记录的惊人解释](https://www.bilibili.com/video/BV1eNG36QEmz)
 
 
 ## 喵喵：
